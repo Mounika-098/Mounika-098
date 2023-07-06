@@ -2,7 +2,7 @@
 
 👀 I’m interested in exploring innovative technologies and solving complex problems through software development.
 
-🌱 I’m currently learning and expanding my skills in areas such as neural networks, quantum computing, and mining big data.
+🌱 I’m currently learning and expanding my skills in areas such as full-stack development, frontend and backend web development, and web design.
 
 💞️ I’m looking to collaborate on exciting projects that challenge me as a full stack developer.
 
