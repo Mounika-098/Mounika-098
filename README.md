@@ -8,7 +8,7 @@
 
 📫 How to reach me: 
 - Email: ananthamounika123@gmail.com
-- LinkedIn:[https://www.linkedin.com/in/mounika-anantha-6082911a6]
+- LinkedIn: [https://www.linkedin.com/in/mounika-anantha-6082911a6]
   
 🤝Let's connect and create something amazing together!🌟
 
